@@ -3,3 +3,6 @@
 - 🌱 I’m currently learning Digital Design
 - 💞️ I’m looking to work with UI/UX designers, business fuctionalists and developers.
 - 📫 You can reach me via LinkedIn 
+- Languages: Russian, Dutch, English, French and basic level of German, Italian and Swedish
+- Knowledge of Microsoft Office: Word, Excel, PowerPoint, Access; Outlook, Canva
+- Customer contact experience

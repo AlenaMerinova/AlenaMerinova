@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AlenaMerinova
+- 👀 I’m interested in UI/UX design,graphic design, motion design, printdesign, 3D.
+- 🌱 I’m currently learning Digital Design
+- 💞️ I’m looking to work with UI/UX designers, business fuctionalists and developers.
+- 📫 You can reach me via LinkedIn 
